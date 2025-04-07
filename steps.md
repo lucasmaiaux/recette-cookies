@@ -9,9 +9,6 @@
 - Ranger la vaisselle
 
 Bon appetit !
-
-
-
-
- Regalez vous
+Regalez vous
+Mangez bien!
 miam miam
